@@ -1,4 +1,4 @@
-# 100 days of code 🔥 - 🏡 Working From Home
+# 100 days of code - 🏡 Working From Home
 
 Here we go again
 
